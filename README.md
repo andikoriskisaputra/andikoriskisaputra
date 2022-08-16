@@ -1,6 +1,6 @@
 ### Hi saya andiko dari smk jakarta pusat 1 👻  
 
-    ![jokowi](/jokowi.jpg)
+![jokowi](/jokowi.jpg)
 
 <!--
 **andikoriskisaputra/andikoriskisaputra** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
