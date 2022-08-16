@@ -1,4 +1,4 @@
-### Hi saya andiko dari smk jakarta pusat 1 👻  
+### Hi saya Andiko dari SMK JAKARTA PUSAT 1 👻  
 
 ![jokowi](/jokowi.jpg)
 
